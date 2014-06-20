@@ -1,1 +1,0 @@
-Vroum vroum is coming, june 20th.
